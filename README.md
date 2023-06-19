@@ -1,3 +1,1 @@
 # Homepage
-
-🧙Hocus-pocus!
